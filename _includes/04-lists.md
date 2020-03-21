@@ -1,1 +1,6 @@
-Replace this with a list of your favorite things.
+1. 影视
+    - 陈情令
+    - 斗罗大陆
+2. 音乐
+    - 满足
+    - 余年
